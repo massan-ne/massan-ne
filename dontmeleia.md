@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sarah.ssc
 - 👀 I’m interested in IT
-- 🌱 I’m currently learning CC50 on Havard in Brasil
+- 🌱 I’m currently learning CC50 in Havard in Brasil
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i´m too stupid to study what i´m studyin so i´m going to fck mysf S2
 
